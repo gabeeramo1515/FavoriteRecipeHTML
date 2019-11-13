@@ -2,7 +2,7 @@
  
 I enjoy drinking nutritious smoothies from time to time. My favorite being Strawberry flavored.
 
-![](2019-09-19-18-34-11.png)
+![](https://images.media-allrecipes.com/userphotos/720x405/416503.jpg)
 
 - **Prep:** 5 Minutes
 - **Ready In:** 6 Minutes
